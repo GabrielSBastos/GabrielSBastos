@@ -1,6 +1,5 @@
 - 👋 Hi, I’m Gabriel
 - 🌱 I’m currently studying information systems
-- 👽 My pronoun are he/him
 - 👾 I'm looking for work with technology 
 - 📫 You can email me gabrielsou1912@gmail.com
 
