@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Gabriel
 - 🌱 I’m currently studying information systems
-- 👾 I'm looking for work with technology 
-- 📫 You can email me gabrielsou1912@gmail.com
+- 👾 I live in Brazil
+- 📫 Conect with me ! linkedin.com/in/gabrielsousabastos/
 
 
 <!---
